@@ -1,2 +1,2 @@
 # ROBOTEC
-check this out gusyss!! 
+THIS IS A WIP im crine😭😭
