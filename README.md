@@ -1,6 +1,10 @@
 # ଘ(੭*ˊᵕˋ)੭* ̀
 ![Profile Views](https://komarev.com/ghpvc/?username=flohwalzer&label=days%20without%20masturbating&color=F6E377&style=flat-square)
 
+<p align="center">
+  <img src="./aesthetic-banner.jpg" width="500">
+</p>
+
 ![typing banner](https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=900&size=22&color=FBE17B&width=700&lines=I+felt+hot,+like+my+heart%E2%80%99s+dancing+and+throbbing.;I%E2%80%99ll+put+an+end+to+my+masturbation.;Love,+love,+love.+I%E2%80%99m+absorbed+in+it,+enjoying+it+through+my+body!;My+masturbation+can%E2%80%99t+end.)
 
 
