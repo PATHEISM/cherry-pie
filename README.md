@@ -1,8 +1,7 @@
 # ଘ(੭*ˊᵕˋ)੭* ̀
-![days it went without masturbation!](https://komarev.com/ghpvc/?username=PATHEISM&label=nightmares&color=2E0014)
+![Profile Views](https://komarev.com/ghpvc/?username=flohwalzer&label=days%20without%20masturbating&color=F6E377&style=flat-square)
 
-
-![typing banner](https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=900&size=22&color=660002&width=600&lines=I+cannot+help+but+be+frightened+of+the+morning+sun.;That+evil+smile+%E2%86%90+Me,+cutting+it+off.;I+gaze+upon+a+procession+of+dead+people.;I+watch+the+march+of+dead+ants.)
+![typing banner](https://readme-typing-svg.demolab.com?font=Playfair+Display&weight=900&size=22&color=FBE17B&width=700&lines=I+felt+hot,+like+my+heart%E2%80%99s+dancing+and+throbbing.;I%E2%80%99ll+put+an+end+to+my+masturbation.;Love,+love,+love.+I%E2%80%99m+absorbed+in+it,+enjoying+it+through+my+body!;My+masturbation+can%E2%80%99t+end.)
 
 
 
